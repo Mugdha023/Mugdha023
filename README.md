@@ -1,6 +1,6 @@
 -Hi I'm Mugdha!!
 
--💻 Software Developer | 🚀 Building engaging apps & web projects | 🎨 Love painting & creativity | 📡 Exploring smart tech & automation | 🌍 Passionate about environmental impact 🌱
+-💻 Software Developer | 🚀 Building engaging apps & web projects | 🎨 Love painting & writing stories | 📡 Exploring smart tech & automation | 🌍 Passionate about environmental impact 🌱
 
 
 
